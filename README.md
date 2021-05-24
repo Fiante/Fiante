@@ -1,3 +1,3 @@
 - 👋 Hi Community, I'm Fiante. Where everything starts eps1.0_hellofriend.mov.
-- 🌱 I’m currently studying HTML, Css, Js..
+- 🌱 I’m currently studying Py, Js, (Trojan)..
 - 📫 How to reach me, look ur back :3 
